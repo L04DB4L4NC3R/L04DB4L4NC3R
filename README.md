@@ -1,3 +1,5 @@
+![angad sharma](https://user-images.githubusercontent.com/30529572/85805581-4282a380-b73c-11ea-9d65-89d67f1c2971.png)
+
 ### Hi there 👋
 
 <!--
